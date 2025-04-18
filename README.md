@@ -1,0 +1,2 @@
+# github.ioi
+privacy policy
